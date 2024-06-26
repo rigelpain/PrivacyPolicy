@@ -18,4 +18,4 @@
 
 ## 連絡先
 プライバシーポリシーに関する質問がある場合は、以下のメールアドレスまでお問い合わせください：
-[example@example.com]
+[rigelpain at gmail.com]
